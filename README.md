@@ -1,0 +1,1 @@
+# f2-city-kiosk-avatar
